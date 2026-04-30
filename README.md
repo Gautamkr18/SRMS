@@ -97,6 +97,9 @@ All CopyRight @GG.Tech
 
 ## Contact
 
+**Gautam Gupta**  
+Phone: 7549117172  
+
 For questions or support, please contact the developer.
 
 ---
